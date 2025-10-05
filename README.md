@@ -1,1 +1,1 @@
-Para el trabajo, entre a la rama trabajo
+Profe para el trabajo, entre a la rama trabajo
